@@ -1,4 +1,4 @@
-(ChatGPT Image Jul 3, 2026, 11_30_08 AM.png)
+(https://github.com/thushanthdev00/thushanthdev00/blob/main/ChatGPT%20Image%20Jul%203%2C%202026%2C%2011_30_08%20AM.png)
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/thushanth-thushanth000) [![Medium](https://img.shields.io/badge/Medium-12100E?logo=medium&logoColor=white)](https://medium.com/@@thushanth.dev.00) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:thushanth.dev.00@gmail.com) 
 
